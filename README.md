@@ -11,6 +11,7 @@
 <p align="center"><img src="https://64.media.tumblr.com/e7c5c1beafed361e92c54c98edae7d41/3b6b7e90eaa33936-0f/s2048x3072/c76b0893379587fe51e7773684fd0dbeee5e07c2.pnj"/>
 
 <h5 align="center"><ins> DNI </ins>
+<h6 align="center"> people under 18 or minors who go on the 18+ server. we will block you.
 <h6 align="center"> pro / neutral endogenic supporters and endogenic systems.
 <h6 align="center"> cluster disorder demonizers or pd demonizers.
 <h6 align="center"> fakeclaimers.
