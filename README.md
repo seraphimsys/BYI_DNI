@@ -6,7 +6,7 @@
 <h6 align="center">we don't talk much at first. we tend to chip in a few comments around new people.
 <h6 align="center">we will block freely.
 <h6 align="center">we reclaim slurs we can use as well as kys / kms jokes.
-<h6 align="center">we are apathetic, please do not expect empathy or sympathy, even if it is fake.
+<h6 align="center">we are lack the ability to feel empathy, please do not expect it, even if it is fake.
 <p>ㅤ</p>
 <p align="center"><img src="https://64.media.tumblr.com/e7c5c1beafed361e92c54c98edae7d41/3b6b7e90eaa33936-0f/s2048x3072/c76b0893379587fe51e7773684fd0dbeee5e07c2.pnj"/>
 
@@ -18,5 +18,6 @@
 <h6 align="center"> do not talk about politics with me.
 <h6 align="center"> people who use the terms 'delulu' or 'schizo' in a 'funny silly' way without having the respective disorders.
 <h6 align="center"> wincest shippers. get away from me.
+<h6 align="center"> people who throw around the term 'narcissist'.
 <p>ㅤ</p>
 <p align="center"><img src ="https://64.media.tumblr.com/e5ca109d6376561931bbd16247572b1e/85313a10d142e98e-b9/s400x600/985357569b8cd8a7d1af3ada8c27e157786bf5f8.pnj"/>
