@@ -1,10 +1,10 @@
 <p align="center"><img src ="https://64.media.tumblr.com/70a6516c06ce2d59ceff523b7c9ad2f0/85313a10d142e98e-bd/s400x600/d53bef6d154e2894bffd1753a004fae86dd32cbc.pnj"/>
 <h5 align="center"><ins> BYI </ins>
 <h6 align="center">we are generally very blunt.
-<h6 align="center">we are extremely socially awkward.
+<h6 align="center">we are extremely socially awkward and very introverted.
 <h6 align="center">we tend to 'talk about ourselves' a lot. it is how we connect with other people or show relatability.
-<h6 align="center">we don't talk much at first. we tend to chip in a few comments around new people.
-<h6 align="center">we will block freely.
+<h6 align="center">we don't talk much at first. we tend to chip in a few comments around new people and it takes a while for us to warm up.
+<h6 align="center">we will block people freely. we do not have to give you a reason.
 <h6 align="center">we reclaim slurs we can use as well as kys / kms jokes.
 <h6 align="center">we are lack the ability to feel empathy, please do not expect it, even if it is fake.
 <h6 align="center">we are often off tab or napping. please whisper to int for the fastest reply.
