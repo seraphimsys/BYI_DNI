@@ -7,6 +7,7 @@
 <h6 align="center">we will block freely.
 <h6 align="center">we reclaim slurs we can use as well as kys / kms jokes.
 <h6 align="center">we are lack the ability to feel empathy, please do not expect it, even if it is fake.
+<h6 align="center">we are often off tab or napping. please whisper to int for the fastest reply.
 <p>ㅤ</p>
 <p align="center"><img src="https://64.media.tumblr.com/e7c5c1beafed361e92c54c98edae7d41/3b6b7e90eaa33936-0f/s2048x3072/c76b0893379587fe51e7773684fd0dbeee5e07c2.pnj"/>
 
