@@ -21,5 +21,6 @@
 <h6 align="center"> people who use the terms 'delulu' or 'schizo' in a 'funny silly' way without having the respective disorders.
 <h6 align="center"> wincest shippers. get away from me.
 <h6 align="center"> people who throw around the term 'narcissist'.
+<h6 align="center"> people with delusional attachments, otherwise known as 'irls.' 
 <p>ㅤ</p>
 <p align="center"><img src ="https://64.media.tumblr.com/e5ca109d6376561931bbd16247572b1e/85313a10d142e98e-b9/s400x600/985357569b8cd8a7d1af3ada8c27e157786bf5f8.pnj"/>
